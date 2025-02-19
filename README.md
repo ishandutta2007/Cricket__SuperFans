@@ -11,3 +11,15 @@ https://cricmantra.github.io/Cricket__SuperFans?videoUrl=https://jcevents.jiocin
 Willow Sports 
 
 https://cricmantra.github.io/Cricket__SuperFans?videoUrl=https%3A%2F%2Famg01269-amg01269c1-willowtv-us-5479.playouts.now.amagi.tv%2Fplaylist%2Famg01269-willowtvfast-willowplus-willowtvus%2Fplaylist.m3u8
+
+
+CHAMPIONS TROPHY 🏆 LIVE
+
+WILLOW 🏏(PAK vs NZ )
+https://cricket.90live.in/2025/02/ct-live-3.html
+
+
+SPORTS 18 🏏 (PAK vs NZ )
+https://cricket.90live.in/2025/02/ct-live-2.html
+
+IPHONE/ANDROID WORKING FOR BOTH
