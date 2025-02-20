@@ -16,6 +16,7 @@ https://cricket.90live.in/2025/02/ct-live-3.html
 Sky Sports🏏 (IND vs BAN)
 https://cricket.90live.in/2025/02/ct-live-5.html
 
+https://cricmantra.github.io/Cricket__SuperFans/?videoUrl=https%3A%2F%2Fhocdn.news%2Flive%2Fstarhindi.m3u8
 
 Sports18 हिंदी
 
