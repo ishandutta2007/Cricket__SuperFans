@@ -1,3 +1,10 @@
+Prime FHD
+https://crichype.fun/p3/?id=Prime
+
+Prime Hindi FHD
+https://crichype.fun/p3/?id=PrimeHindi
+
+
 ENGLISH🏏 ( IND vs BAN)
 https://cricket.90live.in/2025/02/ct-live-4.html
 
