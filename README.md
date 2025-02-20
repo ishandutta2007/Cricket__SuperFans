@@ -1,5 +1,20 @@
-Pakistan Vs Newzealand - CT 2025
+ENGLISH🏏 ( IND vs BAN)
+https://cricket.90live.in/2025/02/ct-live-4.html
 
+Sky Sports🏏 (IND vs BAN)
+https://cricket.90live.in/2025/02/ct-live-5.html
+
+MYCO🏏 ( IND vs BAN)
+https://cricket.90live.in/2025/02/ct-live-2.html
+
+ENGLISH🏏 ( IND vs BAN)
+https://cricket.90live.in/2025/02/ct-live-4.html
+
+WILLOW🏏 ( IND vs BAN)
+https://cricket.90live.in/2025/02/ct-live-3.html
+
+Sky Sports🏏 (IND vs BAN)
+https://cricket.90live.in/2025/02/ct-live-5.html
 Sports18 हिंदी
 
 https://cricmantra.github.io/Cricket__SuperFans?videoUrl=https://jcevents.jiocinema.com:443/bpk-tv/JC_Sports18_1HD/JCHLS/hdntl=exp=1739979314~acl=%2f*~id=aaf549ec51984c86b32dd7de3e1334c7~data=hdntl~hmac=86c6375b80c1d3121305e4a8ec5fb9be248e31060df7c7e4e3455368aebf782d/index.m3u8
