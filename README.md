@@ -44,6 +44,23 @@ WILLOW 🏏(PAK vs NZ )
 https://cricket.90live.in/2025/02/ct-live-3.html
 
 
+
+
+> Sports360Cricket:
+🖼 IND VS PAK 🏏
+
+STAR SPORTS 🏏
+https://cricmantra.github.io/Cricket__SuperFans?videoUrl=https%3A%2F%2Fhocdn.news%2Flive%2Fstarhindi.m3u8
+
+
+HINDI🏏
+https://cricmantra.github.io/Cricket__SuperFans?videoUrl=https://hocdn.news/live/starhindi.m3u8
+
+
+IPHONE/ANDROID FOR BOTH
+
+
+
 SPORTS 18 🏏 (PAK vs NZ )
 https://cricket.90live.in/2025/02/ct-live-2.html
 
