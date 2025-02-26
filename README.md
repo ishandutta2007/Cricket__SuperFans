@@ -1,3 +1,5 @@
+https://cricmantra.github.io/Cricket__SuperFans/?videoUrl=https://cdnt20.t20hd.cfd/live/m3-720p.m3u8
+
 https://cricmantra.github.io/Cricket__SuperFans/?videoUrl=https%3A%2F%2Fhocdn.news%2Flive%2Fstarhindi.m3u8
 
 Prime FHD
