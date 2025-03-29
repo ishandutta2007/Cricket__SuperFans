@@ -69,3 +69,12 @@ SPORTS 18 🏏 (PAK vs NZ )
 https://cricket.90live.in/2025/02/ct-live-2.html
 
 IPHONE/ANDROID WORKING FOR BOTH
+
+
+
+
+HINDI
+
+https://bingsport.cfd/
+
+https://cricmantra.github.io/Cricket__SuperFans?videoUrl=https://m3u8.cloudycx.net/media/hls/files/index.m3u8
