@@ -78,3 +78,21 @@ HINDI
 https://bingsport.cfd/
 
 https://cricmantra.github.io/Cricket__SuperFans?videoUrl=https://m3u8.cloudycx.net/media/hls/files/index.m3u8
+
+
+Hindi
+https://cxh.pages.dev/play/?id=H3
+
+Hindi 2
+https://cxh.pages.dev/play/?id=H2
+
+Willow
+https://cxh.pages.dev/p3/?id=Willow
+
+Willow iOS
+https://cxh.pages.dev/play/?id=Willow
+
+Open L!nks in CHROME Browser ONLY
+
+
+
