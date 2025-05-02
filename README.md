@@ -96,3 +96,17 @@ Open L!nks in CHROME Browser ONLY
 
 
 
+IPL 2025
+
+Hindi (All Quality)
+https://cxh.pages.dev/p1/?id=Hindi
+
+Hindi 2 (All Quality)
+https://cxh.pages.dev/play/?id=H2
+
+Willow (All Quality)
+https://cxh.pages.dev/p3/?id=Willow
+
+Willow iOS
+https://cxh.pages.dev/play/?id=Willow
+
