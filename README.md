@@ -110,3 +110,11 @@ https://cxh.pages.dev/p3/?id=Willow
 Willow iOS
 https://cxh.pages.dev/play/?id=Willow
 
+
+HINDI/ENGLISH 🏏 
+https://user65873.hls-video.net/hls/token/a3f0c81db39d64f85b6f6a5cfaa1b2ce/stream.m3u8
+
+HINDI/ENGLISH 🏏 
+https://user65876.hls-video.net/media2/token/a3f0c81db39d64f85b6f6a5cfaa1b2ce/stream.m3u8?token=a00d65b6420920a39148fc795efa0a5a
+
+
