@@ -118,3 +118,16 @@ HINDI/ENGLISH 🏏
 https://user65876.hls-video.net/media2/token/a3f0c81db39d64f85b6f6a5cfaa1b2ce/stream.m3u8?token=a00d65b6420920a39148fc795efa0a5a
 
 
+India vs England - Test
+
+हिन्दी+English Mobile Only
+https://chlive.pages.dev/INDvsENG
+
+English
+https://chlive.pages.dev/p3/?id=Ten5
+
+Sky Sports
+https://chlive.pages.dev/p1/?id=Sky
+
+Willow
+https://chlive.pages.dev/p3/?id=Willow
