@@ -131,3 +131,20 @@ https://chlive.pages.dev/p1/?id=Sky
 
 Willow
 https://chlive.pages.dev/p3/?id=Willow
+IND VS ENG -
+https://ddy6new.newkso.ru/ddy6/premium741/mono.m3u8
+
+ENGLISH 
+https://me.webcric.com/willow.htm
+
+💻📱T Sports English 
+Hindi 👇 
+https://me.webcric.com/hindi.htm
+Prime 50fps (Chrome)
+
+
+💻📱T Sports English 
+Hindi 👇 
+https://me.webcric.com/hindi.htm
+
+https://ddy6new.newkso.ru/ddy6/premium741/mono.m3u8
